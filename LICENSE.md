@@ -1,4 +1,4 @@
-# 
+# Audacity for macOS new Effect: shortcut-customization & scene-transitions is the best Audacity for macOS effect, featuring shortcut-customization and scene-transitions. Safe,
 
 
 
